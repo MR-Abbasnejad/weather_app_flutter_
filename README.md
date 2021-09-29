@@ -19,7 +19,7 @@ Pay me via Trust Wallet: https://link.trustwallet.com/send?coin=714&address=bnb1
 
 
 
-![Screenshot_20210929-152338](https://user-images.githubusercontent.com/87749337/135288666-146eb384-9df1-423c-9d43-651bc4717caf.png) ------------------------  ![Screenshot_20210929-152430](https://user-images.githubusercontent.com/87749337/135288576-f4479bba-246e-46fa-941e-25864b4d2c77.png)
+![Screenshot_20210929-152338](https://user-images.githubusercontent.com/87749337/135288666-146eb384-9df1-423c-9d43-651bc4717caf.png)   ![Screenshot_20210929-152430](https://user-images.githubusercontent.com/87749337/135288576-f4479bba-246e-46fa-941e-25864b4d2c77.png)
 
 
 
