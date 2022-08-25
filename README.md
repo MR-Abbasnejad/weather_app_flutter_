@@ -2,7 +2,7 @@
 Email: m.abbasnezhad.80@gmail.com
 Available for Remote working globaly
 
-# waether_app
+# weather_app
 
  
 Donate some crypto ♥♥♥😘😘😘💘💘💘
